@@ -1,0 +1,3 @@
+- I’m @exe-qt
+- I’m burnt out but trying to learn python, java, and C++.
+- Good luck trying to reach me.
